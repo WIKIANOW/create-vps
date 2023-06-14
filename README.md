@@ -17,10 +17,6 @@
 https://github.com/Rinne-Audio-Support-for-User/Rdp-Windows-cho-fansub-beta
 
 
-## 😺 Xàm xí chút
-
-Đăng ký kênh [YouTube của mình](https://m.youtube.com/channel/UC_a6C7a0WdTZaPCOWtjwP5A)
-
 ## Bắt đầu nào!
 **VPS này duy trì hoạt động trong bao lâu?**<br>
 
